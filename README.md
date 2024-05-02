@@ -6,7 +6,7 @@
    - Email: alejandromunive99@gmail.com
    - Facebook: Alex Munive
    - Instagram: alexcmunive
-- 😄 Pronouns: [your pronouns]
+- 😄 Pronouns: Munive, Alex or Guero
 - ⚡ Fun fact: In my free time, I enjoy playing video games, watching series and movies, and programming.
 
 <!---
